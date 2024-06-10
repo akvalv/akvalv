@@ -18,6 +18,8 @@
 
 Full-time positions now. Feel free to shoot opportunities my way! I enjoy working in a collaborative, creative, and challenging environment.
 
+**[Resume](https://drive.google.com/file/d/1YvN5R9yxiF1ri11W7ebscWNNUDBVNoaO/view?usp=drive_link)**
+
 <h3 align="left">📫 Eager to chat or collaborate?</h3>
 <p align="left">
 
