@@ -18,7 +18,8 @@
 
 Full-time positions now. Feel free to shoot opportunities my way! I enjoy working in a collaborative, creative, and challenging environment.
 
-**[Resume](https://drive.google.com/file/d/1YvN5R9yxiF1ri11W7ebscWNNUDBVNoaO/view?usp=drive_link)**
+**[Resume](https://drive.google.com/file/d/18Wc04_yF2YQMzjDA0sjkTY_0BkiZ0aXA/view?usp=drive_link)**
+**[Portfolio](https://near-rainforest-777.notion.site/Hey-there-I-m-Akash-41162ccbd89d4cb0b084bae0ad88127e)**
 
 <h3 align="left">📫 Eager to chat or collaborate?</h3>
 <p align="left">
