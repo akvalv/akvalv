@@ -16,7 +16,7 @@
 
 Feel free to shoot opportunities my way! I enjoy working in a collaborative, creative, and challenging environment.
 
-**[Resume](https://drive.google.com/file/d/18Wc04_yF2YQMzjDA0sjkTY_0BkiZ0aXA/view?usp=drive_link)**
+**[Resume](https://drive.google.com/file/d/15uixecDtDXPmDuf6d4OzzkLrC8S0Ryco/view?usp=sharing)**
 
 **[Portfolio](https://near-rainforest-777.notion.site/Hey-there-I-m-Akash-41162ccbd89d4cb0b084bae0ad88127e)**
 
