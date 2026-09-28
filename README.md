@@ -26,7 +26,7 @@ Feel free to shoot opportunities my way! I enjoy working in a collaborative, cre
   - Connect on :  <a href="https://linkedin.com/in/akval" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="akval" height="20" width="25" /></a>
 </p> 
 
-- Shoot me an email at valathappan.a@northeastern.edu
+- Shoot me an email at akashvalathappanv@gmail.com
 
 
 <h3 align="left">Languages and Tools:</h3>
